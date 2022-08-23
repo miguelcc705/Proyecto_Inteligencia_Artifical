@@ -7,5 +7,9 @@ Enlace a kaggle
 
 https://www.kaggle.com/datasets/vbookshelf/respiratory-sound-database
 
+video entrega 2
+
+https://www.youtube.com/watch?v=q8w_qBv2ZIg&ab_channel=MIGUELANGELCASTA%C3%91OCARDENAS
+
 
 
